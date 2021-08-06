@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @aniketNTNX
-- 💞️ I’m looking to collaborate on the projects aiding in to take the org forward
+- 💞️ I’m looking to collaborate on the projects helping the org to move forward
 - 📫 How to reach me, slack me at aniket.upadhyay
 
 <!---
